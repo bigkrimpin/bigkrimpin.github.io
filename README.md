@@ -1,1 +1,0 @@
-# bigkrimpin.github.io
